@@ -2,3 +2,5 @@
 NOTES
 
 STOP AT 18 min mark
+
+STOP at 32 MIN MARK
